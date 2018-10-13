@@ -1,2 +1,2 @@
 # Plan B
-## don't really like it
+## Always hate it but always prepare one
